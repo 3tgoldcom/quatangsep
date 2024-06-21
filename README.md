@@ -24,7 +24,26 @@ Mô hình thuyền thuận buồm xuôi gió mạ vàng 24k là món quà tặng
 
 ![Tượng thuyền 5 buồm dát vàng 24k fb](https://github.com/3tgoldcom/quatangsep/assets/173459734/ef2b4d77-b315-46eb-b922-83ed5016dd29)
 
-**Contact us:**
+<h2><strong>Mách bạn 3 món quà tặng sếp nữ sang trọng và đẳng cấp</strong></h2>
+
+###  Bút ký khắc tên độc đáo
+Bút ký khắc tên độc đáo là món quà tặng sếp nữ vừa tinh tế, vừa ý nghĩa. Nó không chỉ là vật dụng hữu ích hàng ngày mà còn thể hiện sự quan tâm và trân trọng của bạn dành cho sếp
+
+###  Tượng phượng hoàng lửa dát vàng 24k
+
+Tượng phượng hoàng lửa dát vàng 24k là món quà tặng thể hiện sự ngưỡng mộ và tôn vinh những phẩm chất cao quý của người lãnh đạo. Phượng hoàng lửa là biểu tượng của sự tái sinh, sức mạnh, quyền lực và may mắn. Tặng tượng phượng hoàng lửa với mong muốn sếp sẽ luôn mạnh mẽ, thành công và tỏa sáng trong sự nghiệp.
+
+![Tượng phượng hoàng](https://github.com/3tgoldcom/quatangsep/assets/173459734/ee999e48-9c03-4be5-a821-014f44629050)
+
+###  Cây kim ngân tài lộc dát vàng 24k
+
+Cây kim ngân dát vàng 24k là một món quà tặng sếp nữ vô cùng ý nghĩa, mang lại may mắn và tài lộc. Kim ngân là loài cây phong thủy được ưa chuộng, tượng trưng cho sự thịnh vượng, giàu có và phát tài. Khi được dát vàng 24k, giá trị và ý nghĩa của cây kim ngân càng được nâng lên một tầm cao mới.
+
+![Cây kim ngân dát vàng 24k - feedback](https://github.com/3tgoldcom/quatangsep/assets/173459734/5386f5c1-37a4-43fd-932f-54869f693656)
+
+-----------------------------------------------------------------------
+
+**Liên hệ mua quà tặng cao cấp thương hiệu 3T Gold:**
 
 *   Address: 6th Element, Nguyễn Văn Huyên, Xuân La, Tây Hồ, Hà Nội
 *   Email: 3tgold.com@gmail.com
